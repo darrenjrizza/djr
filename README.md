@@ -1,3 +1,3 @@
 # djr
 darren j rizza
-product head @ smartvizx.com
+vp product trezi by smartvizx
